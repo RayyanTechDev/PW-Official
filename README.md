@@ -1,0 +1,4 @@
+# PW-Official
+Hello and welcome to Power Spectrum
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+Buy our book at https://www.amazon.com/Power-Spectrum-Mr-Pranav-Gopan/dp/B0DRZJ5Z6W/ref=sr_1_1?crid=2P5ACI3WFNOHA&dib=eyJ2IjoiMSJ9.TvmGREwH3pY06vlZUEME2UO-63diFpcqe7UnVVyFDh5ymqXnXrRCb-P6P349YinjaeLziPiMibOzDCpAUlFmGdQxqOyoJdi4NKfFj5XkspmYmyKFgY2zCfneF6GhWVVr0fkW-FyhyPaOr7mANS-1NmYxWg7mRSWcJZBSaCl7ek6rx-g3MV0L9wnNlFI7cSilj9jEE5fwhEAF9wKyT1JYOTxbsmDXp3WIDU3X9KmGP__lgSfFRy7ryy00nZ8rKwYkgcVFN1EH9wXBL43S1VcfYvl0RpQA_0PXSenHSROrw67W8t7dpen8Syz6vFP8MsJEIyLzkKa1LIHZcD6kamJfz6wdyyYF_jUbu8WhMJWKoqShokJubzFXb7eFGbbS9WFZf_SYpDn4uWC3zM1mmCNh8N9uWgHroBLjopbOBpSOPUZVCR0Wc2Q4xFGGcQYdDfFy.Vi-XasteOLEgsiPe7lRCbyhVsd9_Oji5zgzFAdlooUw&dib_tag=se&keywords=Power+Spectrum&qid=1737461884&sprefix=power+spectrum%2Caps%2C264&sr=8-1
